@@ -1,6 +1,9 @@
 # Required Free Monopoly Go Dice Hack VERSION 7.5
 
 Monopoly Go is a mobile game adaptation of the classic Monopoly board game, developed by Scopely. It takes the familiar elements of Monopoly—such as property trading, collecting rent, and building wealth—and combines them with dynamic features designed for mobile gaming.
+
+<h2><a href="https://allresources.xyz/dicerolls/">Click To Get Link</a></h2>
+
 In Monopoly Go!, accumulating dice rolls is essential for advancing in the game. Here are several methods to obtain more dice:
 
 Daily Free Dice Links: The game's official social media accounts, such as Instagram and Facebook, regularly share links that grant free dice rolls. By clicking on these links from your mobile device with the game installed, you can claim additional dice. Ensure you've reached level 15 and unlocked the 'Album' feature to redeem these links. 
